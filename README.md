@@ -5,7 +5,7 @@
 - 🔭 I’m currently advancing my knowledge
 - 👯 I’m looking to collaborate more on open source projects
 - 🎯 Goals: Create more tech content and collaborate with content creators 
-- ⚡ Fun fact: I love and good at playing Fifa 🎮
+- ⚡ Fun fact: I love and good not good at playing Fifa  🎮, I hope to play like master Abbey one day
 
 ### Connect With Me
 
